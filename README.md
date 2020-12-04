@@ -1,2 +1,2 @@
-# Mamontenok.github.io.
+# Mamontenok.github.io
 сайт
